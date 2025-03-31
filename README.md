@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @chaebin05
-- 👀 I’m interested in ... to books
+- 👀 I’m interested in ... books
 - 📫 How to reach me ... -> 2443011@donga.ac.kr
 - 😄 Pronouns: sloth
 
